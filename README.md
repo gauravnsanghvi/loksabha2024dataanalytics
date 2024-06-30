@@ -1,1 +1,10 @@
-# loksabha2024dataanalytics
+![download](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/2bed4cb6-65d7-4213-8615-e4ed62543d7f)
+![download (1)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/230ec2cb-4b23-49e1-a786-f37f05bdc878)
+![download (2)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/7333d7af-f5c2-47c3-8c36-1a9303ccc3ef)
+![download (3)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/a837d79d-04ac-4d02-af9f-e41340c47e96)
+![download (4)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/35edd9ea-0299-4d76-a2b1-88bc50bcdc91)
+![download (5)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/c8f639be-da73-434b-ab34-b9aabe723f1a)
+![download (6)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/f9b00076-f689-4a44-883b-da1ce095a26a)
+![download (7)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/eabaf405-7b53-42d1-8469-5ff4e7f591ae)
+![download (8)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/96146520-3c3c-4865-8378-0099fac7b42d)
+![download (9)](https://github.com/gauravnsanghvi/loksabha2024dataanalytics/assets/113662235/97a26194-e567-4896-9d50-0e2e0141d89d)
